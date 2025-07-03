@@ -1,5 +1,6 @@
 ## Hi there 👋
-
+Is an Adventist, knows to eat when hungry, runs home when it rains.
+TK cult follower, corporate slave in progress.
 <!--
 **Asuhe404/Asuhe404** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
